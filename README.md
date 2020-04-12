@@ -1,7 +1,7 @@
 # Makan Fofana Touch Designer Projects
 
 
-Some Fun Touch Designer Projects! Enjoy. 🙌 Bileam Vids
+Some Funny Touch Designer Projects! 😂😂😂 Enjoy. 🙌 Bileam Vids
 
 Full Videos -> To Be Released 
 
