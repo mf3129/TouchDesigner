@@ -50,5 +50,12 @@ Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 #
 
+<h2> Radioactive Wave - To Be Released </h2>
+<img width="981" alt="Screen Shot 2020-04-15 at 9 53 33 PM" src="https://user-images.githubusercontent.com/43025563/79405922-abdb7e80-7f63-11ea-8cb3-785654ece5c1.png">
+
+
+#
+#
+
 
 I have many more projects in development. If you want to collaborate, feel free to hit me up at https://makanfofana.org or makanfofana246@gmail.com
