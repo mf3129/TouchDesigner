@@ -35,7 +35,7 @@ Some Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 
  
-<h2> Audio Reactive Butterfly - Noise Input </h2>
+<h2> Introverted Extrovert (Audio Reactive) - Noise Input </h2>
 <img width="1440" alt="Screen Shot 2020-04-12 at 2 07 29 AM" src="https://user-images.githubusercontent.com/43025563/79061874-70d70380-7c62-11ea-8b69-b21ab7fd1f85.png">
 
 
