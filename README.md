@@ -3,9 +3,9 @@
 
 Funny Touch Designer Projects! I've Uncovered The Question Of The Universe. "GOT MILK?" 😂 Enjoy! 🙌 Bileam Vids
 
-Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
+Some Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 
-                                       THE CHRONICLES OF GOT MILK
+                                          THE CHRONICLES OF GOT MILK
 
 <h3> GOT MILK VORTEX </h3>
 
@@ -50,7 +50,7 @@ Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 #
 
-<h2> Radioactive Wave - To Be Released </h2>
+<h2> Radioactive Cell - To Be Released </h2>
 <img width="981" alt="Screen Shot 2020-04-15 at 9 53 33 PM" src="https://user-images.githubusercontent.com/43025563/79405922-abdb7e80-7f63-11ea-8cb3-785654ece5c1.png">
 
 
