@@ -35,9 +35,7 @@ Some Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 
 <h2> The Goat - Jordan 1997 Bulls (TouchDesigner) - To Be Released </h2>
-<img width="350" style="display:inline-block" alt="Screen Shot 2020-04-12 at 2 07 29 AM" src="https://user-images.githubusercontent.com/43025563/80332235-449db400-8818-11ea-99f8-129ba59c4a61.png">
-<img width="350" style="display:inline-block" alt="Screen Shot 2020-04-12 at 2 07 29 AM" src="https://user-images.githubusercontent.com/43025563/80332236-45364a80-8818-11ea-967a-2c4726a5e8a7.png">
-
+<img width="700" alt="Screen Shot 2020-04-12 at 2 07 29 AM" src="https://user-images.githubusercontent.com/43025563/80332838-06a18f80-881a-11ea-9e76-38a2257c6e04.png">
 
 
 #
