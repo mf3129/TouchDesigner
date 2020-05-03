@@ -34,10 +34,9 @@ Some Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 #
 
-<h2> WHIRLWIND - To Be Released (TouchDesigner) </h2>
+<h2> BINARY WHIRLWIND - To Be Released (TouchDesigner) </h2>
 <h4> Original By www.instagram.com/ikatch_ - Berlin, Germany </h4>
-<img  width="350" height="400" alt="screen shot 2018-11-17 at 11 09 05" src="https://user-images.githubusercontent.com/43025563/80908716-23453800-8cf0-11ea-9c23-473625943934.gif"> 
-<img width="1440" alt="Screen Shot 2020-05-03 at 4 32 18 AM" src="https://user-images.githubusercontent.com/43025563/80924567-b36a9800-8d57-11ea-89da-41be4ee0413c.png">
+<img  width="300" alt="screen shot 2018-11-17 at 11 09 05" src="https://user-images.githubusercontent.com/43025563/80908716-23453800-8cf0-11ea-9c23-473625943934.gif"><img width="1440" alt="Screen Shot 2020-05-03 at 4 32 18 AM" src="https://user-images.githubusercontent.com/43025563/80925045-badf7080-8d5a-11ea-8bab-20f4d3462c73.png">
 
 
 #
