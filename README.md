@@ -42,15 +42,6 @@ Some Full Videos -> https://www.instagram.com/p/B-46HyunFPW/?igshid=w6f9dqrjar8o
 #
 # -->
 
-<h2>  D R E A M I N G - https://www.instagram.com/p/B_zrqXGHTsd/ </h2>
-<h4> Original Image By www.instagram.com/visualpotions - London, England </h4>
-<img width="350" alt="Screen Shot 2020-05-07 at 2 50 31 AM" src="https://user-images.githubusercontent.com/43025563/81263379-919a3b00-900d-11ea-800d-2702009d6e64.png">
-
-
-
-#
-#
-
 <h2> The Goat - Jordan 1997 Bulls (TouchDesigner) - www.instagram.com/p/B_fPkawHn2X/ </h2>
 <img width="700" alt="Screen Shot 2020-04-12 at 2 07 29 AM" src="https://user-images.githubusercontent.com/43025563/80332838-06a18f80-881a-11ea-9e76-38a2257c6e04.png">
 
